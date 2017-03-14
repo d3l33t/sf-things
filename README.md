@@ -38,12 +38,17 @@
 - Chambers (Great cocktails)
 - Trick Dog (Great cocktails)
 - Get a Mai Tai at the Tonga Room & Hurricane Bar
+- Blue Bottle Coffee
 
 
 ## Things you have to plan way in advance (30+days)
 - Nopa
 - Alcatraz
 - Dinners on Friday and Saturday.
+- Chinese New Years Parade
+- PRIDE
+- Bay to Breakers (Foot race)
+- Treasure Island Music Festival
 
 ## Places you shouldnt go unless you absolutely want to.
 - 16th and mission bart stop
